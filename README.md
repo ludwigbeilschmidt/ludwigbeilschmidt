@@ -4,4 +4,4 @@
 
 **I make crude, and immature jokes. Always iwc 'round me.**
 
-side note: please refer to me as "john" or "marston" if you're not a close friend
+side note: please refer to me as "john" or "marston" if you're not a friend
