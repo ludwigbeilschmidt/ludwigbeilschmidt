@@ -1,3 +1,5 @@
+read rentry before interacting
+
 ![](https://komarev.com/ghpvc/?username=johnmarstoned&color=a10000)
 
 ![anal](https://files.catbox.moe/fvqnpa.jpeg)
