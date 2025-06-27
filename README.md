@@ -1,4 +1,4 @@
-read rentry before interacting
+read rentry before addin' me
 
 ![](https://komarev.com/ghpvc/?username=johnmarstoned&color=a10000)
 
