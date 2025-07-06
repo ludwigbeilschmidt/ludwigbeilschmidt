@@ -1,7 +1,5 @@
 read rentry before addin' me
 
-@exodusinamerica is my boyfriend. <333
-
 ![](https://komarev.com/ghpvc/?username=johnmarstoned&color=a10000)
 
 ![anal](https://files.catbox.moe/fvqnpa.jpeg)
