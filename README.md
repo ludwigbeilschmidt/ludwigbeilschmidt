@@ -1,7 +1,6 @@
 read rentry before addin' me
 
-![](https://komarev.com/ghpvc/?username=johnmarstoned&color=ffffff)
-
+-> ![](https://komarev.com/ghpvc/?username=johnmarstoned&color=ffffff) <-
 ![banner](https://files.catbox.moe/b5uyst.png)
 
 **I make crude, and immature jokes. Always iwc 'round me.**
