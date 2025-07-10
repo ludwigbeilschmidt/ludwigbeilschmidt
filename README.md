@@ -1,6 +1,8 @@
 sign my strawpage if ur awesome
 
-![](https://files.catbox.moe/ossnln.png)
+<p align="center"
+  <img src=https://files.catbox.moe/ossnln.png>
+  </p>
 ![](https://files.catbox.moe/aibc90.png)
 ![banner](https://files.catbox.moe/b5uyst.png)
 
