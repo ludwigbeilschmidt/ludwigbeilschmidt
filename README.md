@@ -5,6 +5,6 @@
 ![](https://files.catbox.moe/aibc90.png)
 ![banner](https://files.catbox.moe/b5uyst.png)
 
-**[rentry](https://rentry.co/marstoning) . [atabook](https://marston.atabook.org) . [strawpage](https://johnmarstoned.straw.page) . [guns.lol](https://guns.lol/marstoned)**
+**[rentry](https://rentry.co/marstoning) . [atabook](https://marston.atabook.org) . [strawpage](https://johnmarstoned.straw.page) . [guns.lol](https://guns.lol/marston)**
 
 <code style="color : black">[12.3.24.](https://github.com/exodusinamerica)</code>
