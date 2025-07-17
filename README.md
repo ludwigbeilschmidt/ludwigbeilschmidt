@@ -7,4 +7,6 @@
 
 **[rentry](https://rentry.co/marstoning) . [atabook](https://marston.atabook.org) . [strawpage](https://johnmarstoned.straw.page) . [guns.lol](https://guns.lol/marston)**
 
+**MST Timezone. (UTC -6)**
+
 <code style="color : black">[12.3.24.](https://github.com/exodusinamerica)</code>
