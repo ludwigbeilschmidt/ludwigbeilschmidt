@@ -5,6 +5,8 @@
 ![](https://files.catbox.moe/aibc90.png)
 ![banner](https://files.catbox.moe/b5uyst.png)
 
+That one John Marston kinnie with an underage drinking problem. (Yes, I am actively recovering before anyone says anything.)
+
 **[rentry](https://rentry.co/marstoning) . [atabook](https://marston.atabook.org) . [strawpage](https://johnmarstoned.straw.page) . [guns.lol](https://guns.lol/marston)**
 
 **MST Timezone. (UTC -6)**
