@@ -6,6 +6,8 @@
 
 **[rentry](https://rentry.co/marstoning) . [atabook](https://marston.atabook.org) . [strawpage](https://johnmarstoned.straw.page) . [guns.lol](https://guns.lol/marston)**
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31l7b624tr7xjxuwcv7obtlogqra&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=5345b3)](https://github.com/kittinan/spotify-github-profile)
+
 **MST Timezone. (UTC -6)**
 
 [spanish github](https://github.com/luckiity)
