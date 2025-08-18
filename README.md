@@ -1,6 +1,9 @@
 ![](https://files.catbox.moe/5py9t2.png)
 
 ![](https://files.catbox.moe/ossnln.png)
+
+![](https://komarev.com/ghpvc/?username=ripvanwinkles&color=000000)
+
 ![](https://files.catbox.moe/aibc90.png)
 ![banner](https://files.catbox.moe/b5uyst.png)
 
