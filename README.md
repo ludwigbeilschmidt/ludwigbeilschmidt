@@ -26,3 +26,5 @@ src="https://files.catbox.moe/mwi1j4.png"
 <p align="center">
 links wip. will add soon.
 </p>
+
+![](https://komarev.com/ghpvc/?username=ludwigbeilschmidt&color=47613b)
