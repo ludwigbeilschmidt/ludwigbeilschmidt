@@ -6,6 +6,8 @@
 *Ludwig* or John .
   </p>
 
+> however, some people call me "germany/doitsu" too.
+
   <p align="left">
   <img width="600" height="600"
 src="https://files.catbox.moe/fuproj.png"
