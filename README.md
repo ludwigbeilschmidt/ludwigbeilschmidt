@@ -26,7 +26,7 @@ src="https://files.catbox.moe/mwi1j4.png"
 
   
 <p align="center">
-links wip. will add soon.
+links wip. will add soon. (however, it will take a while. i am in AFJROTC + marching band and i am extremely busy most days.)
 </p>
 
 ![](https://komarev.com/ghpvc/?username=ludwigbeilschmidt&color=47613b)
