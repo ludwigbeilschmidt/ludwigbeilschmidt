@@ -15,7 +15,7 @@ src="https://files.catbox.moe/fuproj.png"
 
   >  #1 gerita truther, literally ludwig (trust)
 
-> ASL, ENG, ESP, DEU (actively taking french classes)
+> ASL, ENG, ESP, DEU 
 
 > **HETALIA**, **RDR/RDR2**, Homestuck
 
