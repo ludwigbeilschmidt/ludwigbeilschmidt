@@ -26,7 +26,7 @@ src="https://files.catbox.moe/mwi1j4.png"
 
   
 <p align="center">
-links wip. will add soon. (however, it will take a while. i am in AFJROTC + marching band and i am extremely busy most days.)
+side note: please stop calling me a not-zee. i am not one and it makes me look terribly bad. i have been called this on many, many occassions and i do not like it.
 </p>
 
 ![](https://komarev.com/ghpvc/?username=ludwigbeilschmidt&color=47613b)
